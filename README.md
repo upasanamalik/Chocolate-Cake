@@ -1,0 +1,3 @@
+Soft, moist and deeply chocolatey, this eggless chocolate cake makes an excellent starting point for a multitude of chocolate cake-based desserts and a perfect vehicle for any number of delicious frostings. 
+Eggless chocolate cake is also super easy to put together. Made in just one bowl and without a mixer, this cake batter is a lazy baker’s dream! With just about 10 minutes of active prep time, you can have a rich, dark, delectable chocolate cake in the oven.
+You’ll have to bake this eggless cake to really believe it – it’s insanely moist, perfectly spongy and is just the thing to cure your chocoholic cravings.
